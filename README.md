@@ -1,2 +1,0 @@
-# buatticaaa
-isihatiku
